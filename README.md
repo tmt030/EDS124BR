@@ -11,3 +11,6 @@ https://youtu.be/JVXk2J1nP6M
 
 Here is a link of me explaining my Snap Program for week 3:
 https://youtu.be/JuQr-I7qu9U
+
+Here is a link of me explaining my Snap Program Monkey for week 3:
+https://youtu.be/UCV1Rcias-4
