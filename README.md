@@ -17,3 +17,6 @@ https://youtu.be/UCV1Rcias-4
 
 Here is a link of me explaining my Snap Program Shape for week 4:
 https://youtu.be/9qDDhi81glM
+
+Here is a link of me explaining my Snap Program for week 6:
+https://youtu.be/xVO8O-Nzsz4
