@@ -23,3 +23,6 @@ https://youtu.be/xVO8O-Nzsz4
 
 Here is a link of me explaining my Snap Program for week 7:
 https://youtu.be/yLkTroJdIlI
+
+Here is a link of me explaining my Snap Program for week 8:
+https://youtu.be/THBI2WSGNmI
